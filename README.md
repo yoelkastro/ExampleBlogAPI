@@ -1,0 +1,1 @@
+Blog Template: https://www.styleshout.com/free-templates/keep-it-simple/
